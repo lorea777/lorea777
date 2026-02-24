@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **l.villapaz.539636@umindanao.edu.ph**
 
-- ⚡ Fun fact **I love bread**
+- ⚡ Fun fact **I love bread and furry cows**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
